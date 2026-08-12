@@ -1,1 +1,0 @@
-# richarteq.github.io
